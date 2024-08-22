@@ -1,4 +1,4 @@
-# **Generation Zoomers BD**! We are the voice of Generation Z in Bangladesh!
+# We are the voice of Generation Z in Bangladesh!
 
 Technology, social impact, and making a difference in our community. 🌍🇧🇩
 
